@@ -1,4 +1,4 @@
-## https://www.tiktok.com/discover/evan-buckley-wallpaper
+## https://discover/evan-buckley-wallpaper
 ## <img width="188" height="240" alt="image" src="https://github.com/user-attachments/assets/9d31f7e0-2462-40fd-b5f0-2cf2c7c4134c" />
 
 
